@@ -24,8 +24,8 @@
 - The living area above the ground is one of the key features
 - Overal Quality and Condition including basement quality are important factors
 - Garage area, attached garages and 3 car garage are important too
-- Features like 3 full bath, 2 fireplaces central airconditioning add value
-- Certain neighbourhoods add more value
+- Features like 3 full bath, 2 fireplaces, central airconditioning add value to the price
+- Certain neighbourhoods add more value to the price
 
 <!-- You don't have to answer all the questions - just the ones relevant to your project. -->
 
